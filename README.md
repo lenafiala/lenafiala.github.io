@@ -1,1 +1,1 @@
-My name is Lena Fiala and I am a senior majoring in Physics at the University of Southern California.
+My name is Lena Fiala and I am a senior majoring in Physics at the University of Southern California. I currently do research on the astrometric precision of the Kepler telescope in Dr. Kris Pardo's group. I am also interested in experimental high energy and accelerator physics. 
